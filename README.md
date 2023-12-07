@@ -1,0 +1,2 @@
+# ecuador1
+CCOM1293UHS
